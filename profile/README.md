@@ -9,4 +9,4 @@ created by me
 
 I am Nothing but I am everything.
 
-so, achieve something great together.
+so, we can achieve something great together.
